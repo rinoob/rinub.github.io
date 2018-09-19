@@ -1,1 +1,1 @@
-# rinub.github.io
+# rinub.me
